@@ -5,9 +5,8 @@
 ![](https://komarev.com/ghpvc/?username=nottheghost&label=⚡︎&color=orange)
 
 
-<img width="20" height="20" alt="IMG_9434" src="https://github.com/user-attachments/assets/019af97c-855f-4303-b927-7368feac58f0" />
+
 <img width="20" height="20" alt="IMG_9433" src="https://github.com/user-attachments/assets/c84e475a-e735-4d27-8674-d455251b0c06" />
-<img width="20" height="20" alt="IMG_9434" src="https://github.com/user-attachments/assets/392a4aa6-5492-4d05-ada6-e33b05bf7728" />
 
 
 ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀
